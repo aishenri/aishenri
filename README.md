@@ -1,0 +1,1 @@
+- 👋 5d=ictus-chiracécité=ç=1/sqrt(LC)=314159265=supraluminique c
